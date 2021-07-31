@@ -1,0 +1,1 @@
+cindrella was a girl living with her step mom and 2 step sisters. Her step mom was very cruel to her. Cindrella used to do all the chores.
