@@ -1,1 +1,2 @@
 cindrella was a girl living with her step mom and 2 step sisters. Her step mom was very cruel to her. Cindrella used to do all the chores.
+Cindrealla was a very beautiful and hardworking girl. but she used to live like a maid
